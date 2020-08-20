@@ -1,1 +1,1 @@
-# Theory-of-Everything-TOE
+# Theory-of-Everything
